@@ -10,7 +10,7 @@
 
 - 💬 Ask me about Everyone
 
-- 📫 How to reach me shahkzodjon98@mail.ru
+- 📫 How to reach me shakhzoderkinov98@gmail.com
 
 ## Connect with me
 <p align="left">
